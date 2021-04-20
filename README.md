@@ -32,9 +32,7 @@ JS|하|상|
 **군대**에서 ~~tuna지만~~ 열심히 해볼게용ㅎㅎ
 
 
- 
- >'Just do it! -박세호-
-
-링크 활용
 
 [블로그 주소](https://blog.naver.com/323psh)
+ 
+>'Just do it! -박세호-
