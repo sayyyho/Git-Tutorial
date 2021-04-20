@@ -35,4 +35,4 @@ JS|하|상|
 
 [블로그 주소](https://blog.naver.com/323psh)
  
->'Just do it! -박세호-
+>'Just do it!' -박세호-
